@@ -1,4 +1,4 @@
-# 💫 Hi there, I'm Lenn! 👋
+# 💫 Hi there, I'm Plink08! 👋
 
 - 🔭 **Focussing on:** my exams :')
 - 🌱 **I'm currently:** exploring homelabbing.
